@@ -1,0 +1,1 @@
+# email-happy-holidays-smartling
